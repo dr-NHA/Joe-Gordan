@@ -7,8 +7,7 @@ Goes By: MystikMonk420
 
 ## But Clearly They Fail To Reverse Engineer My Source And Therefore Are All Selling Tools That Lack In Features And Get People Banned!
 
-## MystikMunk420 Has Had His Own Console Banned And Multiple Customers Of His Consoles Have Been Banned,
-This Is Because Of Terrible Code In Stolen Projects (Made By Kids)
+## MystikMunk420 Has Had His Own Console Banned And Multiple Customers Of His Consoles Have Been Banned, This Is Because Of Terrible Code In Stolen Projects (Made By Kids)
 
 ## Do Note He Owes The Bank Lots Of Money And Other People!
 
